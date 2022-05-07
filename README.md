@@ -11,5 +11,4 @@
 The teaching team is doing a great work
 
 - How long did it take you to complete this assignment? And, before you started, how long did you think it would take you to complete this assignment?
-
 I thought it will take 2 hours and it took me 4 and a half hours
